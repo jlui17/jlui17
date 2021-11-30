@@ -1,10 +1,13 @@
 ### Hellurrrr👋
 ### I'm Justin Lui.
 
-I'm a...
+Me in a few phrases...
 - Incoming SWE Intern @ Galvanize, now Diligent
 - 3rd year CS + Business [(BUCS)](https://mybcom.sauder.ubc.ca/bucs) @ UBC
-- [JG/Support main](https://na.op.gg/summoner/userName=Monkey%20D%20Lui) in League of Legends
+- Teaching Assistant (COMM 205: MIS) @ UBC
+- [JG/Support main](https://na.op.gg/summoner/userName=Monkey%20D%20Lui) in League of Legends and washed up CS -> Valorant player
+- Biggest Black Pink Lisa and One Piece fan 
+- Hoping to go on exchange to Europe in 2022/2023
 
 To see my Frenchie and learn more about me, check out [justinlui.com](https://justinlui.com) 🐕 
 
