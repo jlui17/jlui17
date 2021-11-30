@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hellurrrr👋
+# I'm Justin Lui
+## A Software Engineer
 
 <!--
 **jlui17/jlui17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
