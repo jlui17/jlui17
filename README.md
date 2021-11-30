@@ -1,6 +1,11 @@
 ### Hellurrrr👋
 ### I'm Justin Lui.
 
+I'm a...
+- Incoming SWE Intern @ Galvanize, now Diligent
+- 3rd year CS + Business [(BUCS)](https://mybcom.sauder.ubc.ca/bucs) @ UBC
+- [JG/Support main](https://na.op.gg/summoner/userName=Monkey%20D%20Lui) in League of Legends
+- 
 
 <!--
 **jlui17/jlui17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
