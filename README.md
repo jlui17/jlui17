@@ -4,7 +4,6 @@
 Me in a few phrases...
 - Incoming SWE Intern @ Galvanize, now Diligent
 - 3rd year CS + Business [(BUCS)](https://mybcom.sauder.ubc.ca/bucs) @ UBC
-- Teaching Assistant (COMM 205: MIS) @ UBC
 - [JG/Support main](https://na.op.gg/summoner/userName=Monkey%20D%20Lui) in League of Legends & washed up CS -> R6 -> Valorant player
 - Biggest Black Pink Lisa & One Piece fan 
 - Hoping to go on exchange to Europe in 2022/2023
