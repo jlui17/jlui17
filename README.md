@@ -1,4 +1,4 @@
-### Hey👋
+### Hey! 👋
 ### I'm Justin Lui.
 
 Me in a few phrases...
