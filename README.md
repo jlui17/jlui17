@@ -1,12 +1,12 @@
-### Hellurrrr👋
+### Hey👋
 ### I'm Justin Lui.
 
 Me in a few phrases...
-- Incoming SWE Intern @ Galvanize, now Diligent
+- SWE Intern @ Galvanize, now Diligent
 - 3rd year CS + Business [(BUCS)](https://mybcom.sauder.ubc.ca/bucs) @ UBC
-- [JG/Support main](https://na.op.gg/summoner/userName=Monkey%20D%20Lui) in League of Legends & washed up CS -> R6 -> Valorant player
+- [JG/Support main](https://na.op.gg/summoner/userName=lovesrycoding) in League of Legends & washed up CS -> R6 -> Valorant player
 - Biggest Black Pink Lisa & One Piece fan 
-- Hoping to go on exchange to Europe in 2022/2023
+- Going on exchange to London in Jan - April 2023
 
 To see my Frenchie and learn more about me, check out [justinlui.com](https://justinlui.com) 🐕 
 
