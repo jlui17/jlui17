@@ -3,5 +3,7 @@
 
 Me in a few phrases...
 - CS + Business [(BUCS)](https://mybcom.sauder.ubc.ca/bucs) @ UBC
+- Beep booper
+- Frenchie Lover
 
-To see my Frenchie and learn more about me, check out [justinlui.com](https://justinlui.com) 🐕 
+Check out [justinlui.com](https://justinlui.com) 🐕 
